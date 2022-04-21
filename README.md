@@ -15,11 +15,4 @@ I’m looking to collaborate on new NFT projects right now. I am fully booked on
 You can reach me from Discord with my username ARGO#2482
 
 Have a great day.
-
-
-░█████╗░██████╗░░██████╗░░█████╗░
-██╔══██╗██╔══██╗██╔════╝░██╔══██╗
-███████║██████╔╝██║░░██╗░██║░░██║
-██╔══██║██╔══██╗██║░░╚██╗██║░░██║
-██║░░██║██║░░██║╚██████╔╝╚█████╔╝
-╚═╝░░╚═╝╚═╝░░╚═╝░╚═════╝░░╚════╝░
+ARGO
